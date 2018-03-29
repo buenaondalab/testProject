@@ -1,1 +1,1 @@
-tanto va la gatta al lardo che ci lascia
+tanto va il robot al lardo che ci lascia
